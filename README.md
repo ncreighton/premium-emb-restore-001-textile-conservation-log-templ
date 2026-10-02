@@ -1,0 +1,2 @@
+# premium-emb-restore-001-textile-conservation-log-templ
+What if have a complete productivity system running today took minutes instead of hours?  Fully documented: every section explained so you know exactly what to customize. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Textile Conservation Log — fully configured and ready to use - Pre-built databases
